@@ -1,16 +1,29 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**citadelhater/citadelhater** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<img width="498" height="277" alt="Image" src="https://github.com/user-attachments/assets/74cddc89-243d-48d6-89de-bfdcc1659a5f" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<div align="center">
+
+
+　
+　
+
+   
+tiger⠀𓂂　14yr old
+
+
+
+
+usually offtb,　w2i
+
+
+
+
+
+𓏵 
+
+
+
+fandom iwc
