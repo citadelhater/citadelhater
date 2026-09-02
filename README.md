@@ -25,4 +25,4 @@ usually offtb,　w2i
 
 
 
-fandom iwc
+[strawpage](https://citadelhater.straw.page/)
