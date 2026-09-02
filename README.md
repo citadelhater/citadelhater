@@ -10,7 +10,7 @@
 　
 
    
-tiger⠀𓂂　14yr old
+tiger⠀𓂂　4teen
 
 
 
