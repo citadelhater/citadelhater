@@ -15,7 +15,7 @@ tiger⠀𓂂　　　4teen
 
 
 
-usually offtb,　w2i
+usually offtab,　w2i
 
 
 
