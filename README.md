@@ -1,7 +1,8 @@
 <div align="center">
 
 
-<img width="498" height="277" alt="Image" src="https://github.com/user-attachments/assets/2547e73f-5203-4045-baf2-6d352e60def9" />
+<img width="400" height="300" alt="Image" src="https://github.com/user-attachments/assets/47c2cfcf-05f8-4b8a-909f-e0f6f8f207d4" />
+
 
 <div align="center">
 
@@ -10,7 +11,7 @@
 　
 
    
-tiger⠀𓂂　　　4teen
+tiger⠀⠀　　　4teen
 
 
 
