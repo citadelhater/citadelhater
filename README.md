@@ -11,7 +11,7 @@
 　
 
    
-tiger⠀⠀　　　4teen
+tiger⠀⠀　　　fifteen
 
 
 
